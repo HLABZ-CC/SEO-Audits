@@ -3,7 +3,7 @@ We produce a **Premium SEO Technical Report** in ***pdf format***, including err
 
 Whether you manage a ***blog***, an ***e-commerce website*** or an ***online software***, this **Expert SEO Audit** will allow you to ***plan and manage the growth of your business easily***!
 
-You will receive an **Expert Full SEO Audit** of your ***website***, ***ecommerce***, ***SAAS*** in pdf format.
+You will receive an **Expert Full SEO Audit** of your ***website***, ***ecommerce***, ***SAAS*** in pdf format. 
 
 
 - 🌐 ***Website*** : **[www.hlabz.cc](https://www.hlabz.cc/)**
