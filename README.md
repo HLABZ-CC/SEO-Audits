@@ -20,7 +20,7 @@ You will receive an **Expert Full SEO Audit** of your ***website***, ***ecommerc
 
   
 
-➤ Potential Technical and Code Issues. 
+➤ Potential Technical and Code Issues.  
 
  
 
